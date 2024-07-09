@@ -12,3 +12,5 @@
 >- кнопки
 >- наклоном
 
+## Поддержать проект. 
+### https://yoomoney.ru/fundraise/13DPASMJTO0.240617
